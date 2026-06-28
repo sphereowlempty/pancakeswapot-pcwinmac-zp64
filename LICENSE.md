@@ -1,4 +1,4 @@
-# 
+# Profissional pancakeswap trading bot extensões for Mac OS | Ultimato pancakeswap trading bot extensões for PC Windows. Featuring análise de momento and pools de liquidez DEX — optimized for maximum performance.
 
 
 
